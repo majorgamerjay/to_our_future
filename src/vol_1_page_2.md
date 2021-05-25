@@ -2,7 +2,7 @@
 <p align="right"><i>Page 2</i></p>
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Here it is, I found it. I
-found a signboard of a local bike store..
+found a signboard for a local bike store..
 
 *Hassan & Friends' Bikes!*
 
