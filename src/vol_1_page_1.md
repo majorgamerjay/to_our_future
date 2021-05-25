@@ -5,7 +5,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; It's dark. The lights are
 turned off. The room is cold. There's no one here. I don't
 know what happened. Five minutes ago, I was outside, now I
-am in a cold room with heavy air. I am sweating. the door is
+am in a cold room with heavy air. I am sweating. The door is
 right in front of me. I know it's not locked.
 
 I muster up all my courage and go to the door; Once I twist
