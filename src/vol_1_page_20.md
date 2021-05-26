@@ -8,7 +8,7 @@ realized she was wearing high heels.
 
 She started twisting her heels to inflict even more pain. I knew
 I will never forget this pain. Felt like I already entered
-hell already.
+hell.
 
 Unlike others, she wore an helmet not a mask. The helmet looked like a
 flat rounded cylinder with no ventilation. She twisted her
