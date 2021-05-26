@@ -24,6 +24,9 @@ person die from getting shot in front of me. Her blood
 gushing out of her chest pouring down on my face. Some of it
 even went into my mouth.
 
+"Damn it! I should've finished my job quickly" She shouted as her
+realization kicked in.
+
 I look back and see it's the police. No.. it's not just the
 police, it's the RAB. The Rapid Action Battalion squad. They
 responded to the distress signal and shot the lady.

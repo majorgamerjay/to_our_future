@@ -19,7 +19,7 @@ almost dying and it's a woman, yet I am beating it. Blood
 came coughing out of her and a one last strike from my hand
 to her face, she died completely.
 
-*I can't believe it, I murdered a person.*
+*I can't believe it, I murdered a defenseless person.*
 
 I started losing my sanity. I couldn't believe I murdered
 an almost dead and vulnerable person. I never did such a
