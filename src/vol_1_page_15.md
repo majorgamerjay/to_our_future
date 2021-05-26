@@ -29,6 +29,8 @@ girl. So I give it a try.*
 
 "Ohh, that's nice. How are you doing today?"
 
+*I thought Rashed and I had a pact about no-girlfriends until marriage*
+
 I cannot continue this conversation further while knowing
 that my best friend just betrayed me. Broke my heart. Ruined
 my life like this. All my love and trust into him.. all of
