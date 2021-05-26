@@ -17,7 +17,7 @@ reminds me about that nightmare.
 
 My dad once told me this road was named Roman Road
 because there used to live a lot of Romaboos here in the
-18th century despite the Roman's didn't exist at that.
+18th century despite the Roman's didn't exist at that time.
 They praise their civilization, success and everything.
 
 Like how Weaboos and Koreaboos exist, Romaboos exist. I
